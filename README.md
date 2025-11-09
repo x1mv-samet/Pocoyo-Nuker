@@ -1,0 +1,3 @@
+# NUKING TOOL BY X1MV_SAMET
+
+discord: 04le
